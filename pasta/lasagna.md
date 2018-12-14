@@ -32,7 +32,7 @@ A sha
 7. Place a thin layer of ragu in the base of the ovenproof dish and cover with a single layer of pasta sheets. Spread a layer of béchamel sauce over the pasta. Repeat this until you run out of meat, making sure that you have enough bechamel sauce left to cover the top layer of pasta.
 8. Sprinkle the grated parmesan over the top.
 9. Place the dish in the oven on the top shelf and cook for about 45 minutes, or until the top is lightly browned and the sauce is bubbling.
-## Hints & tips
+**Hints & tips**
 * Get good beef. This is the most important part of the dish. The best beef will produce little fat and a great flavour.
 * Try using goats cheese and milk for the béchamel sauce. Sainsbury's and Safeways both sell a goat's cheese that's almost like cheddar in consistency. Perfect for béchamel sauce.
 * Look for canned tomatoes in 'rich tomato juice'. They're a bit more expensive, but definitely worthwhile
